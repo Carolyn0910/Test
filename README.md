@@ -1,3 +1,3 @@
-My name is Carolyn Alexandra Krause.
+My name is Carolyn Krause.
 Okt 09 1994
 orange
